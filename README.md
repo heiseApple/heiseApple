@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm Davide Di Monda!
+### 👋 Hi there, I'm Davide!
 
 ---
 
